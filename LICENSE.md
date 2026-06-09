@@ -1,4 +1,4 @@
-#  
+#  Experience dig deeper for brainrots like never before with rare Script for dig deeper for brainrots, the #1 Script. Includes esp and anti-ban for
 
 
 
